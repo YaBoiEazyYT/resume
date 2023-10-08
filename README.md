@@ -1,1 +1,0 @@
-# tguinresume.github.io
